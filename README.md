@@ -1,4 +1,4 @@
-# Adult Porn Networks sites
+# Porn sites Networks List
 
 # AdultTime Affiliate Site [Gamma Stats](https://www.gammastats.com/)
 * 21NATURALS
